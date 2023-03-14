@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mariyaduarda
 - 👀 I’m interested in to be produtive about my time
 - 🌱 I’m currently learning programming
-- 💞️ I’m looking to collaborate on NewJeans's albums
+- 💞️ I’m looking to collaborate on whatever place that accepts me
 - 📫 How to reach me its a mystery
 
 <!---
